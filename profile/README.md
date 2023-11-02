@@ -1,4 +1,4 @@
-In support of accelerated negotiation through free markets applied social choice theory.
+In support of accelerated negotiation through free markets and application of the best practices in social choice theory.
 
 ***We do not exactly seek like-minded people who simply agree -- instead we seek contributors.***
 
