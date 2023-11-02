@@ -1,6 +1,6 @@
 In support of accelerated negotiation through free markets and application of the best practices in social choice theory.
 
-***We do not exactly seek like-minded people who simply agree -- instead we seek contributors.***
+***We do not exactly seek like-minded people who simply agree on the importance of free information exchange and the open marketplace of ideas -- instead we seek contributors.***
 
 # AUCT.US Contributor Covenant Code of Conduct
 
