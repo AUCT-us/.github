@@ -1,6 +1,6 @@
 In support of accelerated negotiation through free markets applied social choice theory.
 
-We do not exactly seek like-minded people who simply agree -- instead we seek contributors.
+***We do not exactly seek like-minded people who simply agree -- instead we seek contributors.***
 
 # AUCT.US Contributor Covenant Code of Conduct
 
