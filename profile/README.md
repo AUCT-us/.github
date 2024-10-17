@@ -1,6 +1,6 @@
 In support of accelerated negotiation through free markets and expedited application of the best practices in social choice theory and the accelerated group negotiation represented by free, fair and open marketplaces and trading exchanges.
 
-***We do not exactly seek like-minded people who simply agree on the importance of free information exchange and the open marketplace of ideas -- instead we seek contributors.***
+***We do not exactly seek like-minded people who simply agree on the importance of free information exchange and the open marketplace of ideas -- instead we seek contributors who place a premium on the truth and openness inherent in the discipline delivered by the full scope of information and expanded choice which free markets provide.***
 
 # AUCT.US Contributor Covenant Code of Conduct
 
