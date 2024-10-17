@@ -1,4 +1,4 @@
-In support of accelerated negotiation through free markets and application of the best practices in social choice theory.
+In support of accelerated negotiation through free markets and expedited application of the best practices in social choice theory and the accelerated group negotiation represented by free, fair and open marketplaces and trading exchanges.
 
 ***We do not exactly seek like-minded people who simply agree on the importance of free information exchange and the open marketplace of ideas -- instead we seek contributors.***
 
